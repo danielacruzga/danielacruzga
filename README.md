@@ -1,6 +1,6 @@
 # Hola, soy Dani 👋
 
-**Data Analyst | Abogada de Migración | Humanidades Digitales**
+**Data Analyst | Migración | Humanidades Digitales**
 
 Profesional en Relaciones Internacionales con 3+ años en derecho migratorio estadounidense. Actualmente en transición hacia análisis de datos y Humanidades Digitales.
 
