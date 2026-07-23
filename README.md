@@ -19,5 +19,4 @@ Profesional en Relaciones Internacionales con 3+ años en derecho migratorio est
 - Minimal computing
 
 ### 📫 Contacto
-- **LinkedIn**: [Tu perfil]
 - **Email**: tu.email@gmail.com
